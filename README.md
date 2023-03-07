@@ -1,9 +1,9 @@
 ### Hi there 👋
-- 🔭 I’m currently working on EXP0ZE1NG W4NK3RZ!
-- 🌱 I’m currently learning H4CK1NG!
-- 👯 I’m looking to collaborate on H4CK1NG/D3V
-- 🤔 I’m looking for help with MY Website
-- 📫 How to reach me: Email 
+- 🔭 I’m currently Working on EXP0ZE1NG W4NK3RZ!
+- 🌱 I’m currently Learning H4CK1NG!
+- 👯 I’m Looking To Collaborate on H4CK1NG/D3V
+- 🤔 I’m Looking For help with My Website
+- 📫 How To Reach me: Email 
 - 😄 Pronouns: H4CK3R
 - ⚡ Fun fact: UR A W4NK3R!
 
